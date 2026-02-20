@@ -48,5 +48,5 @@
 мощный культурный и экономический феномен, который продолжает удивлять и развиваться,
 открывая новые горизонты для творчества и взаимодействия.
 
-https://www.google.com/imgres?q=%D0%BA%D0%B0%D1%80%D1%82%D0%B8%D0%BD%D0%BA%D0%B0%20%D0%B8%D1%81%D1%82%D0%BE%D1%80%D0%B8%D1%8F%20%D1%80%D0%B0%D0%B7%D0%B2%D0%B8%D1%82%D0%B8%D1%8F%20%D0%BA%D0%BE%D0%BC%D0%BF%D1%8C%D1%8E%D1%82%D0%B5%D1%80%D0%BD%D1%8B%D1%85%20%D0%B8%D0%B3%D1%80&imgurl=https%3A%2F%2Fryazanreg.ru%2Fuploads%2Fposts%2F2019-10%2F1570229496_2.jpg&imgrefurl=https%3A%2F%2Fpicbasic.ru%2Fpubl%2Fpoleznye_materialy%2Fehvoljucija_kompjuternykh_igr_ot_pong_do_vr%2F10-1-0-1378&docid=7M287jmHUmU6wM&tbnid=sWNRqACdLWfMMM&vet=12ahUKEwi0kPezyeeSAxW2UFUIHf8XF2sQnPAOegQIKRAB..i&w=1680&h=1050&hcb=2&ved=2ahUKEwi0kPezyeeSAxW2UFUIHf8XF2sQnPAOegQIKRAB
+
 
